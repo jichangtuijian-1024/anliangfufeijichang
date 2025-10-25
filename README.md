@@ -71,34 +71,7 @@
 
 [点击访问牛逼机场](https://6.66jc.top/#/login?code=1KWW7UxL)
 
-## 三、简单云
-
-最新地址:[simpleyun.top](https://smp2.simpleyun.top/#/register?code=tSMNCc1z)
-
-:rocket:**线路**：采用中转线路，保证稳定和高速
-
-:rocket:**解锁**：Netfilx/Hulu/Hbo/Disney+/Dazn等流媒体
-
-:rocket:**设备支持**：不限速，不限制设备
-
-**简单云套餐**
-
-- **按量付费**（不限时，用完再续）
-
-| 套餐    | 150G   | 300G   |
-| ------- | ------ | ------ |
-| 价格    | ￥25   | ￥40   |
-| 1GB价格 | ￥0.17 | ￥0.13 |
-
-- 按月付费
-
-| 套餐 | 50G/月 | 100G/月 | 220G/月 | 350G/月 |
-| ---- | ------ | ------- | ------- | ------- |
-| 价格 | ￥6    | ￥10    | ￥20    | ￥30    |
-
-[点击访问简单云](https://smp2.simpleyun.top/#/register?code=tSMNCc1z)
-
-## 四、超级跑车
+## 三、超级跑车
 
 最新地址：[cjpaoche.top](https://cjpaoche.top?path=register&code=wuQdk7rk)
 
@@ -129,7 +102,7 @@
 
 [点击访问超级跑车](https://cjpaoche.top?path=register&code=wuQdk7rk)
 
-## 五、七星云
+## 四、七星云
 
 最新地址:[qixingyun123.com](https://123.qixingyun123.com/#/register?code=kmXWw8LA)
 
@@ -168,7 +141,7 @@
 
 [点击访问七星云](https://123.qixingyun123.com/#/register?code=kmXWw8LA)
 
-## 六、五毛机场
+## 五、五毛机场
 
 最新地址：[freebb.me](https://www.freebb.me/#/register?code=dppbp1r5)
 
