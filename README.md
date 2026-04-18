@@ -35,7 +35,7 @@
 
 ## 二、牛逼机场
 
-最新地址：[6.66jc.top](https://6.66jc.top/#/login?code=1KWW7UxL)
+最新地址：[66.66jc.top](https://6.66jc.top/#/login?code=1KWW7UxL)
 > 日常优惠券：牛逼机场666
 
 ⚡️全中转线路
