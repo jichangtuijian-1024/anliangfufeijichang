@@ -173,7 +173,7 @@
 | ---- | ------- | ------- | ------- |
 | 价格 | ￥8     | ￥16    | ￥28    |
 
-[点击访问超级跑车](https://cjpaoche.top?path=register&code=wuQdk7rk)
+[点击访问超级跑车](https://paocheyoo.com?path=register&code=wuQdk7rk)
 
 ## 知识科普
 
