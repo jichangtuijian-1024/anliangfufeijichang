@@ -9,7 +9,7 @@
 
 ## 一、魔戒机场
 
-最新地址:[mojie.co](https://mojie.co/register?aff=1VlZXWVA)
+最新地址:mojie.host](https://mojie.host/register?aff=1VlZXWVA)
 
 > 魔戒机场成立于2020年。按流量计费，流量不会重置，没有过期时间。
 > 适合轻度使用的人群。买个1块钱的流量包作为临时备用也是不错的选择。用的人也挺多的，看TG群里也有9w+人。
@@ -33,7 +33,7 @@
 | 价格    | ￥19.9 | ￥29.9 | ￥52   | ￥85   | ￥179 | ￥330 | ￥888 |
 | 1GB价格 | ￥0.15 | ￥0.14 | ￥0.12 | ￥0.11 | 0.10  | 0.09  | 0.08  |
 
-[点击访问魔戒机场](https://mojie.co/register?aff=1VlZXWVA)
+[点击访问魔戒机场](https://mojie.host/register?aff=1VlZXWVA)
 
 ## 二、牛逼机场
 
@@ -78,7 +78,7 @@
 
 ## 三、八戒机场
 
-最新地址：[bajie.la](https://bajie.la/register?aff=OpjHo2xr)
+最新地址：[bajie.pro](https://bajie.pro/register?aff=OpjHo2xr)
 
 > 说八戒机场可能不知道，但是提魔戒机场，估计知道的人就很多了。魔戒是按流量计费的机场，看TG群里的用户数就已经超过1.5w了，实际用户只会更多。而八戒机场呢，可以说是魔戒机场的升级版。八戒机场不光是有魔戒的流量包，也推出了月套餐，而且线路全部升级为IPLC/IEPL专线，在速度和稳定性上相较魔戒还是要高一些的。
 
@@ -103,7 +103,7 @@
 | ---- | ------ | ------- | ------- | ------- | -------- |
 | 价格 | ￥12.9  | ￥25.9  | ￥38.9    | ￥51.9  | ￥103.9   |
 
-[点击访问八戒机场](https://bajie.la/register?aff=OpjHo2xr)
+[点击访问八戒机场](https://bajie.pro/register?aff=OpjHo2xr)
 
 
 ## 四、flybit
