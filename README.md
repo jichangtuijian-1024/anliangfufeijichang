@@ -9,7 +9,7 @@
 
 ## 一、魔戒机场
 
-最新地址:mojie.host](https://mojie.host/register?aff=1VlZXWVA)
+最新地址:[mojie.host](https://mojie.host/register?aff=1VlZXWVA)
 
 > 魔戒机场成立于2020年。按流量计费，流量不会重置，没有过期时间。
 > 适合轻度使用的人群。买个1块钱的流量包作为临时备用也是不错的选择。用的人也挺多的，看TG群里也有9w+人。
