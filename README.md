@@ -216,7 +216,7 @@
 
 ## 六、超级跑车
 
-最新地址：[paocheyoo.com](https://paocheyoo.com?path=register&code=wuQdk7rk)
+最新地址：[超级跑车官网](https://paocheyoo.com?path=register&code=wuQdk7rk)
 
 :rocket:线路：高速中转节点 随时维护
 
