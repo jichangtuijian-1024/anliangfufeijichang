@@ -9,7 +9,13 @@
 
 ## 一、魔戒机场
 
-最新地址:[mojie.host](https://mojie.host/register?aff=1VlZXWVA)
+最新地址:
+
+[魔戒机场官网](https://mojie.host/register?aff=1VlZXWVA)
+
+[魔戒官网备用地址1](https://mojie.co/register?aff=DCmnZB0B)
+
+[魔戒官网备用地址2](https://mojie.app/register?aff=DCmnZB0B)
 
 > 魔戒机场成立于2020年。按流量计费，流量不会重置，没有过期时间。
 > 适合轻度使用的人群。买个1块钱的流量包作为临时备用也是不错的选择。用的人也挺多的，看TG群里也有9w+人。
@@ -37,7 +43,7 @@
 
 ## 二、牛逼机场
 
-最新地址：[66.66jc.top](https://66.66jc.top/#/login?code=1KWW7UxL)
+最新地址：[牛逼机场官网](https://66.66jc.top/#/login?code=1KWW7UxL)
 > 日常优惠券：牛逼机场666
 
 ⚡️全中转线路
@@ -78,7 +84,11 @@
 
 ## 三、八戒机场
 
-最新地址：[bajie.pro](https://bajie.pro/register?aff=OpjHo2xr)
+最新地址：
+
+[八戒机场官网](https://bajie.pro/register?aff=OpjHo2xr)
+
+[八戒官网备用地址](https://bajie.la/register?aff=A6pAEaJq)
 
 > 说八戒机场可能不知道，但是提魔戒机场，估计知道的人就很多了。魔戒是按流量计费的机场，看TG群里的用户数就已经超过1.5w了，实际用户只会更多。而八戒机场呢，可以说是魔戒机场的升级版。八戒机场不光是有魔戒的流量包，也推出了月套餐，而且线路全部升级为IPLC/IEPL专线，在速度和稳定性上相较魔戒还是要高一些的。
 
@@ -108,7 +118,12 @@
 
 ## 四、flybit
 
-最新地址:[goflybit.com](https://goflybit.com/#/register?code=IEXOJC66)
+最新地址:
+
+[flybit官网](https://www.flybit2026.one/#/register?code=IEXOJC66)
+
+[flybit官网备用地址](https://goflybit.com/#/register?code=IEXOJC66)
+
 > flybit机场是一家主打高性价比的机场，提供IEPL专线节点，即使在晚高峰也能保证稳定的连接速度。最低套餐仅需15元/月，包含128G流量，非常适合对流量需求适中但追求稳定体验的用户。
 
 :rocket:设备：不限制，支持家庭成员共享
@@ -149,7 +164,12 @@
 
 ## 五、夜煞云
 
-最新地址:[yesha.icu](https://mm.yesha.icu/#/register?code=GG44dvO8)
+最新地址:
+
+[夜煞云官网](https://mm.yesha.icu/#/register?code=cJwt6H9d)
+
+[夜煞云官网备用地址](https://dc.yesha.pro/#/register?code=cJwt6H9d)
+
 > 夜煞云机场是一家 2022 年开业的老牌机场，依托于老牌专业团队低调运营至今，支持 Shadowsocks 和 Trojan 多协议，多运营商入口，线路有公网隧道中转和 IPLC 专线，带宽冗余充足。Premium 节点为专线节点。
 >
 > 夜煞云机场以国内常用地区节点为主，同时提供冷门地区节点少许。
