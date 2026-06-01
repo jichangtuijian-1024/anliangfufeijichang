@@ -43,7 +43,12 @@
 
 ## 二、牛逼机场
 
-最新地址：[牛逼机场官网](https://66.66jc.top/#/login?code=1KWW7UxL)
+最新地址：
+
+[牛逼机场官网](https://666.66jc.top/#/login?code=1KWW7UxL)
+
+[牛逼机场官网备用地址](https://5.6bcloud.top/#/login?code=1KWW7UxL)
+
 > 日常优惠券：牛逼机场666
 
 ⚡️全中转线路
@@ -63,30 +68,32 @@
 > 51全场75折券:75off
 > 活动时间:4.29 10时-5.7 24时
 
+- **按量付费**（不限时，用完再续）
+
 | 套餐    | 200GB  | 2000GB  | 6000G   |
 | :------ | :----- | :------ | ------- |
-| 价格    | ￥12.9 | ￥33.9  | ￥69.9  |
-| 1GB价格 | ￥0.06 | ￥0.017 | ￥0.012 |
+| 价格    | ￥13.9 | ￥35.9  | ￥75.9  |
+| 1GB价格 | ￥0.07 | ￥0.017 | ￥0.012 |
 
 - 按月付费
 
 | 套餐 | 1000G/月 | 3000G/月 |
 | ---- | -------- | -------- |
-| 价格 | ￥6.9    | ￥13.9   |
+| 价格 | ￥7.4    | ￥14.9   |
 
 - 其他套餐
 
   ```tex
-  年付￥23.9  200G/月
+  年付￥24.9  200G/月
   ```
 
-[点击访问牛逼机场](https://66.66jc.top/#/login?code=1KWW7UxL)
+[点击访问牛逼机场](https://666.66jc.top/#/login?code=1KWW7UxL)
 
 ## 三、八戒机场
 
 最新地址：
 
-[八戒机场官网](https://bajie.pro/register?aff=OpjHo2xr)
+[八戒机场官网](https://bajie666.net/register?aff=OpjHo2xr)
 
 [八戒官网备用地址](https://bajie.la/register?aff=A6pAEaJq)
 
@@ -113,14 +120,14 @@
 | ---- | ------ | ------- | ------- | ------- | -------- |
 | 价格 | ￥12.9  | ￥25.9  | ￥38.9    | ￥51.9  | ￥103.9   |
 
-[点击访问八戒机场](https://bajie.pro/register?aff=OpjHo2xr)
+[点击访问八戒机场](https://bajie666.net/register?aff=OpjHo2xr)
 
 
 ## 四、flybit
 
 最新地址:
 
-[flybit官网](https://www.flybit2026.one/#/register?code=IEXOJC66)
+[flybit官网](https://1.flybit.network/#/register?code=IEXOJC66)
 
 [flybit官网备用地址](https://goflybit.com/#/register?code=IEXOJC66)
 
@@ -159,14 +166,14 @@
 | ---- | ------ | ------- | ------- | ------- |
 | 价格 | ￥15  | ￥22  | ￥28    | ￥52  |
 
-[点击访问flybit](https://goflybit.com/#/register?code=IEXOJC66)
+[点击访问flybit](https://1.flybit.network/#/register?code=IEXOJC66)
 
 
 ## 五、夜煞云
 
 最新地址:
 
-[夜煞云官网](https://mm.yesha.icu/#/register?code=cJwt6H9d)
+[夜煞云官网](https://mm.goyesha.com/#/register?code=cJwt6H9d)
 
 [夜煞云官网备用地址](https://dc.yesha.pro/#/register?code=cJwt6H9d)
 
@@ -212,11 +219,11 @@
 | ----------- | -------- |
 | ￥58/年   | 50GB/月 |
 
-[点击访问夜煞云](https://mm.yesha.icu/#/register?code=GG44dvO8)
+[点击访问夜煞云](https://mm.goyesha.com/#/register?code=cJwt6H9d)
 
 ## 六、超级跑车
 
-最新地址：[超级跑车官网](https://paocheyoo.com?path=register&code=wuQdk7rk)
+最新地址：[超级跑车官网](https://paocheyoo.com?path=register&code=BuKTHGYZ)
 
 :rocket:线路：高速中转节点 随时维护
 
@@ -232,16 +239,16 @@
 
 - **按量付费**（不限时，用完再续）
 
-| 套餐    | 200GB  | 99999GB |
+| 套餐    | 200GB  | 55555GB |
 | :------ | :----- | :------ |
 | 价格    | ￥35   | ￥888   |
-| 1GB价格 | ￥0.18 | ￥0.008 |
+| 1GB价格 | ￥0.18 | ￥0.015 |
 
 - 按月付费
 
 | 套餐 | 100G/月 | 220G/月 | 400G/月 |
 | ---- | ------- | ------- | ------- |
-| 价格 | ￥8     | ￥16    | ￥28    |
+| 价格 | ￥8     | ￥16    | ￥32    |
 
 [点击访问超级跑车](https://paocheyoo.com?path=register&code=wuQdk7rk)
 
