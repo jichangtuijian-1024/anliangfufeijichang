@@ -88,9 +88,9 @@
 
 最新地址：
 
-[八戒机场官网](https://bajie.la/register?aff=OpjHo2xr)
+[八戒机场官网](https://43.129.78.33:2333/register?aff=OpjHo2xr)
 
-[八戒官网备用地址](http://bajie.pro/register?aff=A6pAEaJq)
+[八戒官网备用地址](https://bajie.at/?aff=A6pAEaJq)
 
 > 说八戒机场可能不知道，但是提魔戒机场，估计知道的人就很多了。魔戒是按流量计费的机场，看TG群里的用户数就已经超过1.8w+了，实际用户只会更多。而八戒机场呢，可以说是魔戒机场的升级版。八戒机场不光是有魔戒的流量包，也推出了月付套餐，而且线路全部升级为IPLC/IEPL专线，在速度和稳定性上相较魔戒还是要高一些的。
 
@@ -115,14 +115,14 @@
 | ---- | ------ | ------- | ------- | ------- | -------- |
 | 价格 | ￥12.9  | ￥25.9  | ￥38.9    | ￥51.9  | ￥103.9   |
 
-[点击访问八戒机场](https://bajie.la/register?aff=OpjHo2xr)
+[点击访问八戒机场](https://43.129.78.33:2333/register?aff=OpjHo2xr)
 
 
 ## 四、flybit
 
 最新地址:
 
-[flybit官网](https://1.flybit.network/#/register?code=IEXOJC66)
+[flybit官网](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
 
 [flybit官网备用地址](https://goflybit.com/#/register?code=IEXOJC66)
 
@@ -159,7 +159,7 @@
 | ---- | ------ | ------- | ------- | ------- |
 | 价格 | ￥15  | ￥22  | ￥28    | ￥52  |
 
-[点击访问flybit](https://1.flybit.network/#/register?code=IEXOJC66)
+[点击访问flybit](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)
 
 
 ## 五、夜煞云
