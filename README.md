@@ -11,11 +11,11 @@
 
 最新地址:
 
-[魔戒机场官网](https://mojie.host/register?aff=1VlZXWVA)
+[魔戒机场官网](https://43.129.78.33:8000/register?aff=1VlZXWVA)
 
-[魔戒官网备用地址1](https://mojie.co/register?aff=DCmnZB0B)
+[魔戒官网备用地址1](https://47.242.128.61:8000/register?aff=DCmnZB0B)
 
-[魔戒官网备用地址2](https://mojie.app/register?aff=DCmnZB0B)
+[魔戒官网备用地址2](https://mojie.host/register?aff=DCmnZB0B)
 
 > 魔戒机场成立于2020年。按流量计费，流量不会重置，没有过期时间。
 > 适合轻度使用的人群。买个1块钱的流量包作为临时备用也是不错的选择。用的人也挺多的，看TG群里也有9w+人。
@@ -39,7 +39,7 @@
 | 价格    | ￥19.9 | ￥29.9 | ￥52   | ￥85   | ￥179 | ￥330 | ￥888 |
 | 1GB价格 | ￥0.15 | ￥0.14 | ￥0.12 | ￥0.11 | 0.10  | 0.09  | 0.08  |
 
-[点击访问魔戒机场](https://mojie.host/register?aff=1VlZXWVA)
+[点击访问魔戒机场](https://43.129.78.33:8000/register?aff=1VlZXWVA)
 
 ## 二、牛逼机场
 
