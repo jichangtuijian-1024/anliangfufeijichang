@@ -178,7 +178,7 @@
 >
 > 机场采用 SS 和 Vmess 协议，支持 Clash、Shadowrocket、Surge、Surfboard、Quantumult X 一键导入。
 
-> :warning:价格较贵，建议10元月付。
+> :warning:按量价格较贵，建议10元月付。
 
 :rocket:中国大陆BGP中继。
 
